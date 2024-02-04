@@ -2,7 +2,7 @@
 - 👀 I’m interested in forntite victory royale
 - 🌱 I’m currently learning how to dab on the haters
 - 💞️ I’m looking to collaborate on fncs duos
-- 📫 How to reach me gmail please and thank you
+- 📫 How to reach me gmail please and thank you [iminlovewithreet@gmail.com](url)
 - 😄 Pronouns: giggle/giggleself
 - ⚡ Fun fact: dairy gives me explosive diarrhea
 
